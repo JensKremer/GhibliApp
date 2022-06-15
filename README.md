@@ -1,2 +1,2 @@
 # GhibliApp
-Download APK from: shorturl.at/iqvGV
+Download APK from: https://www.shorturl.at/iqvGV
